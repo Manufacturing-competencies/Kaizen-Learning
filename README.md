@@ -1,1 +1,1 @@
-# Kaizen-Learning
+# Kaizen & Learning
